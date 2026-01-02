@@ -1,10 +1,10 @@
 <img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
 
-crds to the artist who made that 
+ $\color{Gray}{\textbf{crds to the artist who made that}}$
 
-## ⋆｡°✩ WELCOMEUUU
+ $\color{LightBlue}\Huge{\textbf{## ⋆｡°✩ WELCOMEUUU}}$
 
- $\color{LightBlue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
+ $\color{Blue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
  $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩}}$
  
