@@ -72,5 +72,6 @@
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
 Thanks for reading!! " Updating this later... when i'm not lazy XDD
+refresh page if text is all together.
 
 <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
