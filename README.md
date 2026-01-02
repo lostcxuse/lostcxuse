@@ -72,6 +72,4 @@
 
 Thanks for reading!! " Updating this later... when i'm not lazy XDD
 
-UPDATE : ALL PONYS ARE MINE, DESIGNS ARE MINE. 
-
 <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
