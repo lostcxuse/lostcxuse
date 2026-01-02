@@ -46,7 +46,7 @@
   </details>
 
   <details>
-  <summary>$${\color{#4c8dc7} dni/boundaries \space }$$</summary>
+  <summary>$${\color{#4c8dc7} boundaries \space }$$</summary>
 
   ☆ I can block / hide / unfriend >> RP/Making me uncomfortable = Block/Hide " Not Talking to me/Offline too long = Unfriend (I don't like when my friend list is clogged up with friends that doesn't talk to me at all or people that is offline for long)
 
