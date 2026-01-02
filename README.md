@@ -2,7 +2,7 @@
 
  $\color{Gray}{\textbf{crds to the artist who made that}}$
 
- $\color{LightBlue}\Huge{\textbf{## ⋆｡°✩ WELCOMEUUU}}$
+## ⋆｡°✩ WELCOMEUUU
 
  $\color{Blue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
