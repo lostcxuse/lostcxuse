@@ -5,6 +5,8 @@
 
 ## ⋆｡°✩ WELCOMEUUU
 
+ $\color{lightBlue}{\textbf{☆ Name: Kuyi "Nicknames are fine ⋆｡°✩}}$
+
  $\color{lightBlue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
  $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩}}$
