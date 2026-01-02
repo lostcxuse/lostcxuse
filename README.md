@@ -13,7 +13,7 @@
  
  $\color{LightBlue}{\textbf{☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp}}$
  
- $\color{LightBlue}{\textbf{☆ I do get jealous... Not everytime. I don't have jealousy issues << I would love to make friends! I can't make friends that well but if you wanna be friends, W2I me to be friends! I'm lowkey dry " Semi-Afk.}}$
+ $\color{LightBlue}{\textbf{☆ I do get jealous... Not everytime. I don't have jealousy issues << I would love to make friends! bmf anytime!
 
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
