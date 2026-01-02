@@ -1,7 +1,9 @@
 ## HAI GUYS 
 
  ☆ Pronouns: She/They ⋆｡°✩
+ 
  ☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩
+ 
  ☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp
  
 <!--
