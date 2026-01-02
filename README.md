@@ -4,7 +4,7 @@ crds to the artist who made that
 
 ## ⋆｡°✩ WELCOMEUUU
 
- $\color{LightBlue}\Huge{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
+ $\color{LightBlue}\small{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
  ☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩
  
