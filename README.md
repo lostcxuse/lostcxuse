@@ -17,7 +17,7 @@
 
  $\color{Gray}{\textbf{Lotta info if people is interested to read lotta}}$
 
-  <summary>$${\color{#4c8dc7} byi \space !}$$</summary>
+  <summary>$${\color{#4c8dc7} byi \space }$$</summary>
   ☆ I think i have "ADHD, So i might be dry or distracted 
 
   ☆ I rarely approach.. Message me first! I'm just not like those people who approachs people without being shy.
