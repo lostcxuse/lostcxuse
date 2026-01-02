@@ -1,4 +1,3 @@
-<img width="736" height="151" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
 
 <img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
 
