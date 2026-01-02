@@ -55,4 +55,4 @@
 
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
-Thanks for reading!!
+Thanks for reading!! " Updating this later... when i'm not lazy XDD
