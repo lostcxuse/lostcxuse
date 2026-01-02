@@ -39,7 +39,7 @@
 
   <details> 
 
-  <summary>$${\color{#4c8dc7} pt \space info \space }$$</summary>
+  <summary>$${\color{#4c8dc7} pt\space info \space }$$</summary>
 
   please come sit with me in ponytown!! I would love to have all the support < "Cuddles! Even i don't have C+H in my name, You can still sit with me! Always free to sit with me!
 
