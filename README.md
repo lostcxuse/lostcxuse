@@ -1,4 +1,6 @@
-## HAI GUYS 
+<img width="3840" height="2160" alt="image" src= "https://lens.usercontent.google.com/image?vsrid=CM2Ypfby7_uBNxACGAEiJDJkYjQyODg0LTI1M2YtNDhmOS04NjYyLTJmMTI1MjcyYzUzYzIGIgJkeigFOIL4qdXR65ED&gsessionid=THj_whqUOYx91iJ13zjrjt6jNWbPAuaDOEmtaG0w96Cf_nK7KJdG7A" />
+
+## ⋆｡°✩ WELCOMEUUU
 
  ☆ Pronouns: She/They ⋆｡°✩
  
@@ -6,17 +8,3 @@
  
  ☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp
  
-<!--
-**lostcxuse/lostcxuse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ... She/They
-- ⚡ Fun fact: ...
--->
