@@ -1,5 +1,9 @@
-## Hi there 👋
+## HAI GUYS 
 
+ ☆ Pronouns: She/They ⋆｡°✩
+ ☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩
+ ☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp
+ 
 <!--
 **lostcxuse/lostcxuse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -11,6 +15,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... She/They
 - ⚡ Fun fact: ...
 -->
