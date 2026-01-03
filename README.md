@@ -79,6 +79,6 @@ Thanks for reading!! " Updating this later... when i'm not lazy XDD
 
 refresh page if text is all together.
 
-![](https://komarev.com/ghpvc/?username=lostcxuse&color=red&style=plastic&label=-)
+![](https://komarev.com/ghpvc/?username=lostcxuse&color=556B9E&style=plastic&label=~)
 
 <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
