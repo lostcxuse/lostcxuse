@@ -4,7 +4,7 @@
 
  $\color{Gray}{\textbf{crds to the artist who made that}}$
 
-## ⋆｡°✩ WELCOMEUUU
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=F73743&width=435&lines=⋆｡°✩WELCOMEUUU)](https://git.io/typing-svg)
 
  $\color{lightBlue}{\textbf{☆ Name: Kuyi "Nicknames are fine ⋆｡°✩}}$
 
