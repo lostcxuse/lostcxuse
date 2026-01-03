@@ -61,7 +61,7 @@
 
   ☆ Hey soo before you interact with me, there's a few things you should may know!
   
-  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like)
+  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - Dandy's world.. annoying ok.. Hazbin hotel/Others from the same creator. 
   
   ☆ I am not changing my pony, If you say if it too bright/others, Then don't focus on me. 
   
