@@ -2,10 +2,12 @@
 
 <img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
 
- $\color{Gray}{\textbf{crds to the artist who made that}}$
+ $\color{Gray}{\textbf{crds to the artist who made that- SIGN MY ATA!!!}}$
+ 
+ ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=556B9E&width=200&lines=⋆｡°✩WELCOMEUUU)](https://git.io/typing-svg)
-
+ $\color{lightBlue}{\textbf{-------------------------------------}}$
+ 
  $\color{lightBlue}{\textbf{☆ Name: Kuyi "Nicknames are fine ⋆｡°✩}}$
 
  $\color{lightBlue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
@@ -13,10 +15,10 @@
  $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩}}$
  
  $\color{LightBlue}{\textbf{☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp}}$
-
- $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry!}}$ ⟢
  
  $\color{LightBlue}{\textbf{☆ I do get jealous... Not everytime. I don't have jealousy issues << I would love to make friends! bmf anytime!}}$
+
+  $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry!}}$
 
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
