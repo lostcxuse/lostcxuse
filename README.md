@@ -96,8 +96,12 @@ refresh page if text is all together.
  <img width="99" height="56" src="https://media.tenor.com/pob858KlesEAAAAM/spokeishere-lifesteal.gif" />
  <img width="99" height="56" src="https://media.tenor.com/_u1MJuQnHUkAAAAM/lifesteal-spokeishere.gif" />
  <img width="99" height="56" src="https://media.tenor.com/3onwsCslhJwAAAAM/lifesteal-smp-lifesteal.gif" />
- <img width="99" height="56" src="https://media.tenor.com/HqDWvXvS1f8AAAAM/spokeishere.gif" />
- 
+ <img width="99" height="56" src="https://media.tenor.com/HqDWvXvS1f8AAAAM/spokeishere.gif" 
+  
+   </details>
+
+  <details>
+
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=556B9E&style=plastic&label=~)
 
 <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
