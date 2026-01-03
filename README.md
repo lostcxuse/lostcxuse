@@ -13,6 +13,8 @@
  $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩}}$
  
  $\color{LightBlue}{\textbf{☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp}}$
+
+ $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry!}}$ ⟢
  
  $\color{LightBlue}{\textbf{☆ I do get jealous... Not everytime. I don't have jealousy issues << I would love to make friends! bmf anytime!}}$
 
