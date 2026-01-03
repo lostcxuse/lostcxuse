@@ -81,7 +81,7 @@
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
   
-  I do not have Tiktok/Insta << (social media i do not have and the people with the user "lostcxuse" ISN'T ME.)
+  I do not have Tiktok/Insta/Pinterest << (social media i do not have and the people with the user "lostcxuse" ISN'T ME.)
   
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
