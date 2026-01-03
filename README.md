@@ -73,6 +73,8 @@
   
   </details>
 
+  $\color{lightBlue}{\textbf{-------------------------------------}}$
+
   <b> LINKS!! </b><br>
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a> -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
