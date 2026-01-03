@@ -4,7 +4,7 @@
 
  $\color{Gray}{\textbf{crds to the artist who made that- SIGN MY ATA!!!}}$
  
- ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}$
+ ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}}$
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
  
