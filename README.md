@@ -72,6 +72,12 @@
   ☆ Sometime i get scared to interact or contact first. I sometime overthink that if I interact first, they wouldn't reply back because i'm bothering them or annoying them. I do get very scared to approach people or talk to people. I do interact/whisper first when I see a pony that really cool and i think every pony is cool! (I do not want to bother or annoy anyone."
   
   </details>
+
+  <b> LINKS!! </b><br>
+  <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a> -
+  <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
+  <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
+  <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
   
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
