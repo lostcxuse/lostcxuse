@@ -3,7 +3,9 @@
 <img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
 
  $\color{Gray}{\textbf{If the goal was activity, you know.. in a way you kinda lost.}}$
+ 
  $\color{Gray}{\textbf{That much power, you have to let go of everything even the ones closest to you.}}$
+ 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
  ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}}$
