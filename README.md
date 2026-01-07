@@ -79,7 +79,7 @@
   
   </details>
 
-  $\color{lightBlue}{\textbf{-------------------------------------}}$
+  $\color{gray}{\textbf{---------everything you do is the past---------}}$
 
   <b> LINKS!! </b><br>
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a> -
