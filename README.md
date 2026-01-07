@@ -14,7 +14,7 @@
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
  
- $\color{lightBlue}{\textbf{☆ Name: Kuyi "Nicknames are fine ⋆｡°✩}}$
+ $\color{lightBlue}{\textbf{☆ Name: Kuyi/Kylo "Nicknames are fine ⋆｡°✩}}$
 
  $\color{lightBlue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
