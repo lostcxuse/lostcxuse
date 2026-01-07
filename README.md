@@ -8,7 +8,7 @@
  
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
 
- $\color{Gray}{\textbf{The past stay the same.. It done. my mistakes is not gonna be forgiving.}}$
+ $\color{Gray}{\textbf{The past stay the same.. It done. my mistakes is not gonna be forgiving. I'm sorry.}}$
  
  ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}}$
 
