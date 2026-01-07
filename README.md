@@ -7,6 +7,8 @@
  $\color{Gray}{\textbf{That much power, you have to let go of everything even the ones closest to you.}}$
  
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
+
+ $\color{Gray}{\textbf{The past stay the same.. It done. my mistakes is not gonna be forgiving.}}$
  
  ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}}$
 
