@@ -71,7 +71,7 @@
 
   ☆ Hey soo before you interact with me, there's a few things you should may know!
   
-  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, Solarballs/contryhuman, Jujutsu kaisen. TADC, Arcane (mild-y) << DSMP, BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic yaoi/yuri lovers... i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
+  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, crk,  Solarballs/contryhuman, Jujutsu kaisen. TADC, Arcane (mild-y) << DSMP, BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic yaoi/yuri lovers... i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
   
   ☆ I am not changing my pony, If you say if it too bright/others, Then don't focus on me. 
   
