@@ -24,7 +24,7 @@
  
  $\color{LightBlue}{\textbf{☆ I do get jealous... Not everytime. I don't have jealousy issues << I would love to make friends! bmf anytime!}}$
 
-  $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry!}}$
+  $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry! i will boop back}}$
 
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
