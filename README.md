@@ -20,7 +20,7 @@
 
  $\color{lightBlue}{\textbf{☆ Pronouns: She/They ⋆｡°✩}}$
  
- $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. ⋆｡°✩}}$
+ $\color{LightBlue}{\textbf{☆ Y'all will find me in pony town, maybe that why your here. online at 4/5 pm EST ⋆｡°✩}}$
  
  $\color{LightBlue}{\textbf{☆ Fandoms: I lowkey forgot what my fandoms but the most i like is " She-Ra and Lifesteal/Unstable smp}}$
  
