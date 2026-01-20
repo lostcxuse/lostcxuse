@@ -78,10 +78,37 @@
   ☆ I am not changing my pony, If you say if it too bright/others, Then don't focus on me. 
   
   ☆ Sometime i get scared to interact or contact first. I sometime overthink that if I interact first, they wouldn't reply back because i'm bothering them or annoying them. I do get very scared to approach people or talk to people. I do interact/whisper first when I see a pony that really cool and i think every pony is cool! (I do not want to bother or annoy anyone."
+  </details>
+
+  <details>
+
+  <summary>$${\color{#4c8dc7} silly-quotes... }$$</summary>
+
+  ☆ "No, today thursday bro?"
+  
+  ☆ "spoke.. your a f'ckin h'e"
+
+  ☆ "THE WHITE HOUSE IS FALLING, IT'S GONNA LAND ON MEEE"
+
+  ☆ Baablu - "Yo wemmbu, please don't drown bro. Wemmbu? Wemmbu? Wemmbu? Wemmbu? Wemmbu? Wemmbu?" Boosfer - "THE BABY SITTING WAS GOING SO WELL BAABLU" "Wemmbu?"
+
+  ☆ "P-P-P-PEASANT" 
+
+  ☆ Mapic - "Spoke, Spoke. Bacon called you something." Spoke - "What'd he call me?" "He called you broke." 
+
+  ☆ "Don't touic, Don't toc, Don't toch, Don't tocj, Don't touchj, Don't touch, Don't TOUCH."
+
+  ☆ "I'm solo, don't kill me.. I'M SOLO, DONT KILL MEEEE"
+
+  ☆ "Just put it in.." "WHAT THE, F'CK" 
+
+  ☆ "He can swing swords REALLY REALLY well~" 
+
+  ☆ Princezam - "Ever since that day, that you told me that I was getting rizzed up, by the pang. i've had the biggest crush on you." Pentar - "What the f- What the freak did i;d come back to?" Pangi - "hey Pentar!" Princezam - "I have a crush on you, Pangi. I've loved you forever."
   
   </details>
 
-  $\color{gray}{\textbf{---------everything you do is the past---------}}$
+  $\color{gray}{\textbf{---------don't trust everyone, trust people who you think can be trustworthy---------}}$
 
   <b> LINKS!! </b><br>
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a> -
