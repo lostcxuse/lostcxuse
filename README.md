@@ -100,8 +100,6 @@
 
   ☆ "I'm solo, don't kill me.. I'M SOLO, DONT KILL MEEEE"
 
-  ☆ "Just put it in.." "WHAT THE, F'CK" 
-
   ☆ "He can swing swords REALLY REALLY well~" 
 
   ☆ Princezam - "Ever since that day, that you told me that I was getting rizzed up, by the pang. i've had the biggest crush on you." Pentar - "What the f- What the freak did i'd come back to?" Pangi - "hey Pentar!" Princezam - "I have a crush on you, Pangi. I've loved you forever."
