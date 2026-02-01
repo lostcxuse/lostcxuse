@@ -28,6 +28,8 @@
 
   $\color{LightBlue}{\textbf{⟢ please do NOT kiss, boop unless we are close! BESTIES ALLOWED - i may not kiss back tho.. sorry! i will boop back}}$
 
+  $\color{LightBlue}{\textbf{⟢ I love hiding and i perfer w2i since i'm mostly offtab!}}$
+
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
  $\color{Gray}{\textbf{Lotta info if people is interested to read lotta}}$
