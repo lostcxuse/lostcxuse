@@ -11,7 +11,9 @@
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
 
  $\color{Gray}{\textbf{The past stay the same.. It done. my mistakes is not gonna be forgiving. I'm sorry.}}$
- 
+
+</details>
+
  ## $\color{lightBlue}{\textbf{⋆｡°✩WELCOMEUUU}}$
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
@@ -105,6 +107,12 @@
   ☆ "He can swing swords REALLY REALLY well~" 
 
   ☆ Princezam - "Ever since that day, that you told me that I was getting rizzed up, by the pang. i've had the biggest crush on you." Pentar - "What the f- What the freak did i'd come back to?" Pangi - "hey Pentar!" Princezam - "I have a crush on you, Pangi. I've loved you forever."
+
+  ☆ "this is where he tickles us.. hard!"
+
+  ☆ "tastes like DIRK!!" -spoke
+
+  ☆ "how old are you" - "in minecraft or real life"
   
   </details>
 
