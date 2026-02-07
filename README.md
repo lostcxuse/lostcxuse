@@ -119,7 +119,6 @@
   $\color{gray}{\textbf{---------don't trust everyone, trust people who you think can be trustworthy---------}}$
 
   <b> LINKS!! </b><br>
-  <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a> -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
