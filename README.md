@@ -1,3 +1,5 @@
+$\color{Gray}{\textbf{i need a better photo cause liek what the hell is this.}}$
+
 <div align="center">
 
 <img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/dc/6c/01/dc6c0107a3611c894346f4c07115449a.jpg" />
