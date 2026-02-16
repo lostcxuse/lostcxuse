@@ -2,7 +2,7 @@ $\color{Gray}{\textbf{i need a better photo cause liek what the hell is this.}}$
 
 <div align="center">
 
-<img width="2160" height="2160" alt="image" src= "https://github.com/user-attachments/assets/983c0a56-c93b-45e4-a2fc-ed65d1354283" />
+<img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/1200x/a6/cf/8a/a6cf8a9dfb2d733641a443fac1117258.jpg" />
 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
