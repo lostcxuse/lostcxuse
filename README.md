@@ -14,7 +14,7 @@ $\color{Gray}{\textbf{i need a better photo cause liek what the hell is this.}}$
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
 
- $\color{LightBlue}{\textbf{☆ online at 4-11 pm or 12-3am EST⋆｡°✩}}$
+ $\color{LightBlue}{\textbf{☆ online at 4-11 pm or 12-3am EST⋆｡°✩ (or random time..)}}$
 
   $\color{LightBlue}{\textbf{⟢ I love hiding and i perfer w2i since i'm mostly offtab!}}$
 
