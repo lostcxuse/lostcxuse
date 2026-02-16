@@ -121,7 +121,3 @@ refresh page if text is all together.
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=556B9E&style=plastic&label=souls)
 
 <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
-
-<img width="300" height="300" alt="image" src= "https://media.discordapp.net/attachments/1352713248662618145/1472960233172107415/IMG_9521.png?ex=6994789d&is=6993271d&hm=bdd1c97a15977c8068e45dbe8d7fb54f78408b9b6ce2b7534d2c14db2aeb9b0b&=&format=webp&quality=lossless&width=1072&height=1072" />
-
-$\color{Gray}{\textbf{MY ART! MY PONY! DON'T STEAL!}}$
