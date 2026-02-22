@@ -14,7 +14,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
 
- $\color{LightBlue}{\textbf{☆ online at 4-11 pm or 12-3am EST⋆｡°✩ (or random time..)}}$
+ $\color{LightBlue}{\textbf{☆ online at 7am-11pm or 12-3am EST⋆｡°✩ (or random time..)}}$
 
   $\color{LightBlue}{\textbf{⟢ I love hiding and i perfer w2i since i'm mostly offtab!}}$
 
@@ -35,8 +35,6 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
   ☆ I do spell allot wrong and i don't care because i just type too fast, ok
 
-  ☆ please come sit with me in ponytown!! I would love to have all the support < "Cuddles! Even i don't have C+H in my name, You can still sit with me! Always free to sit with me!
-
   ☆ I can block / hide / unfriend >> Making me uncomfortable = Block/Hide "
 
   ☆ RP users, DNI. I will not be Role-Playing, And I won't at all.
@@ -51,9 +49,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
   ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, crk,  Solarballs/contryhuman, Jujutsu kaisen. TADC, Arcane (mild-y) << DSMP, BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic yaoi/yuri lovers... i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
   
   ☆ I am not changing my pony, If you say if it too bright/others, Then don't focus on me. 
-  
-  ☆ Sometime i get scared to interact or contact first. I sometime overthink that if I interact first, they wouldn't reply back because i'm bothering them or annoying them. I do get very scared to approach people or talk to people. I do interact/whisper first when I see a pony that really cool and i think every pony is cool! (I do not want to bother or annoy anyone."
-  
+
   </details>
 
   <details>
@@ -107,12 +103,12 @@ refresh page if text is all together.
 
  <details>
 
- <summary>$${\color{#4c8dc7} silly-spoke-gifs \space }$$</summary> 
- <img width="99" height="56" src="https://media.tenor.com/csYKHZTVaAgAAAAM/spokeishere-unstableuniverse.gif" />
- <img width="99" height="56" src="https://media.tenor.com/pob858KlesEAAAAM/spokeishere-lifesteal.gif" />
- <img width="99" height="56" src="https://media.tenor.com/_u1MJuQnHUkAAAAM/lifesteal-spokeishere.gif" />
- <img width="99" height="56" src="https://media.tenor.com/3onwsCslhJwAAAAM/lifesteal-smp-lifesteal.gif" />
- <img width="99" height="56" src="https://media.tenor.com/HqDWvXvS1f8AAAAM/spokeishere.gif" 
+ <summary>$${\color{#4c8dc7} silly-gifs \space }$$</summary> 
+ <img width="99" height="56" src="https://media1.tenor.com/m/utFn8NYOFyIAAAAC/sharpness-conexion.gif" />
+ <img width="99" height="56" src="https://media1.tenor.com/m/o0bhKZ8q_BwAAAAC/sharpness-conexion.gif" />
+ <img width="99" height="56" src="https://media1.tenor.com/m/dL7JBdV-EBEAAAAC/sharpness-sharpness-minecraft.gif" />
+ <img width="99" height="56" src="https://media1.tenor.com/m/EnWyn-l2c8AAAAAC/judelow.gif" />
+ <img width="99" height="56" src="https://media1.tenor.com/m/e09YcK7xsrwAAAAC/judelow-strenght-smp.gif" 
    
   </details>
   
