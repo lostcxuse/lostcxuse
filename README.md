@@ -92,7 +92,7 @@ $\color{Gray}{\textbf{i need a better photo cause liek what the hell is this.}}$
 
   <b> LINKS!! </b><br>
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
-  <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
+  <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
   
   I do not have Tiktok/Insta/Pinterest << (platforms i do not have and the people with the user "lostcxuse" ISN'T ME. lostcxuse/lostcxuse_)
