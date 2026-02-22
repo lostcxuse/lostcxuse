@@ -1,8 +1,8 @@
-$\color{Gray}{\textbf{i need a better photo cause liek what the hell is this.}}$
+$\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
 <div align="center">
 
-<img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/1200x/a6/cf/8a/a6cf8a9dfb2d733641a443fac1117258.jpg" />
+<img width="2160" height="2160" alt="image" src= "https://github.com/user-attachments/assets/f34af0ad-61a2-4713-bb57-a27d040716bd" />
 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
