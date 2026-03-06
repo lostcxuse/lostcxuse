@@ -38,6 +38,8 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
   ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable) "
 
   ☆ RP users, DNI. I will not be Role-Playing, And I won't at all.
+
+  ☆ mmmhmmmm, yes you caught me. i do have speech impediment.
   
   </details>
 
