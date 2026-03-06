@@ -35,7 +35,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
   ☆ I do spell allot wrong and i don't care because i just type too fast, ok
 
-  ☆ I can block / hide / unfriend >> Making me uncomfortable = Block/Hide "
+  ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable) "
 
   ☆ RP users, DNI. I will not be Role-Playing, And I won't at all.
   
@@ -46,10 +46,10 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
   ☆ Hey soo before you interact with me, there's a few things you should may know!
   
-  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, crk,  Solarballs/contryhuman, Jujutsu kaisen. TADC, Arcane (mild-y) << DSMP, BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic yaoi/yuri lovers... i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
+  ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, crk,  Solarballs/contryhuman, Jujutsu kaisen (mild-y) TADC, Arcane (mild-y) << DSMP (mild-y) BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic/n yaoi/yuri lovers... yuri and yaoi, i don't care, just leave me alone and don't talk about it in front of me. i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
   
-  ☆ I am not changing my pony, If you say if it too bright/others, Then don't focus on me. 
-
+  ☆ I TAKE SKINS!! I LOVE YOU, I WOULD LOVE THE OFFERS!! 
+  
   </details>
 
   <details>
@@ -91,11 +91,9 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
   
-  I do not have Tiktok/Insta/Pinterest << (platforms i do not have and the people with the user "lostcxuse" ISN'T ME. lostcxuse/lostcxuse_)
+  I do not have Tiktok/Insta/Pinterest << (platforms i do not have and the people with the user "lostcxuse" ISN'T ME. 'lostcxuse/lostcxuse_')
   
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
-
-Thanks for reading!! " Updating this later... when i'm not lazy XDD
 
 refresh page if text is all together.
 
