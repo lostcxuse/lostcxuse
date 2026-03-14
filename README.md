@@ -39,7 +39,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
   ☆ RP users, DNI. I will not be Role-Playing, And I won't at all.
 
-  ☆ mmmhmmmm, yes you caught me. i do have speech impediment. **has nothing to do with the typing**
+  ☆ mmmhmmmm, yes you caught me. i do have speech impediment. **has nothing to do with the typing** also have AuDHD/ADHD..
   
   </details>
 
