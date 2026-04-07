@@ -20,7 +20,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
- $\color{Gray}{\textbf{Lotta info if people is interested to read lotta}}$
+ $\color{Gray}{\textbf{Lotta info if people is interested to read lotta *check strawpage/prns.page!!}}$
   </details>
 
   <details>
