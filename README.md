@@ -35,7 +35,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
   ☆ I do spell allot wrong and i don't care because i just type too fast, ok
 
-  ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable) "
+  ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable)
 
   </details>
 
