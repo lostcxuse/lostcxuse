@@ -27,7 +27,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
   <summary>$${\color{#4c8dc7} byi/info }$$</summary>
 
-  ☆ I am very interactive!! i like yapping and all and all.. INT!!
+  ☆ I am very interactive!! i like yapping and all and all.. INT!! /non vc talker.
 
   ☆ I am mostly offtab or just yapping to my friends.
 
@@ -37,8 +37,6 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
   ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable) "
 
-  ☆ mmmhmmmm, yes you caught me. i do have speech impediment. **has nothing to do with the typing** also have ~~AuDHD~~/ADHD..
-  
   </details>
 
   <details>
