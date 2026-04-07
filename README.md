@@ -89,7 +89,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
   <b> LINKS!! </b><br>
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
-  <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> - wait what. what is yt doing here!!
+  <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> - wait what. what is yt doing here!!/ HOW DO YOU FUCKING MAKE A ATABOOK?
 
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
