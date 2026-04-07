@@ -92,9 +92,7 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
-  
-  I do not have Tiktok/Insta/Pinterest << (platforms i do not have and the people with the user "lostcxuse" ISN'T ME. 'lostcxuse/lostcxuse_')
-  
+
   $\color{Gray}{\textbf{All photos i'm using, including my pfp. (The banner, The pfp, The ribbon divider) CRDS TO THEM!! I DIDN'T MAKE ANY OF THEM!}}$
 
 refresh page if text is all together.
