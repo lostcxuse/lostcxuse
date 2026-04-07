@@ -1,4 +1,4 @@
-$\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at the same time?..}}$
+$\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at the same time?.. I WILL TAKE THE DAMN BLAME, OK?}}$
 
 <div align="center">
 
