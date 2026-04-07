@@ -1,8 +1,8 @@
-$\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
+$\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at the same time?..}}$
 
 <div align="center">
 
-<img width="2160" height="2160" alt="image" src= "https://github.com/user-attachments/assets/f34af0ad-61a2-4713-bb57-a27d040716bd" />
+<img width="2160" height="2160" alt="image" src= "https://i.pinimg.com/736x/d4/9d/d2/d49dd22b626e659e57dc6439e1f68db4.jpg" />
 
  $\color{Gray}{\textbf{You was my first friend, then my first loss.}}$
  
