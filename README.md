@@ -14,9 +14,9 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
 
  $\color{lightBlue}{\textbf{-------------------------------------}}$
 
- $\color{LightBlue}{\textbf{☆ online at 7am-11pm or 12-3am EST⋆｡°✩ (or random time..)}}$
+ $\color{LightBlue}{\textbf{☆ EST TIME!}}$
 
-  $\color{LightBlue}{\textbf{⟢ I love hiding and i perfer w2i since i'm mostly offtab!}}$
+  $\color{LightBlue}{\textbf{⟢ Always welcome to sit with me and i perfer w2i since i'm mostly offtab!}}$
 
  <img width="2160" height="2160" alt="image" src= "https://i.postimg.cc/BbWNQCxR/84ax6v-(1).png" />
 
