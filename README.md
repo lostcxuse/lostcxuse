@@ -27,17 +27,15 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
 
   <summary>$${\color{#4c8dc7} byi/info }$$</summary>
 
-  ☆ I rarely approach.. Message me first! please!
+  ☆ I am very interactive!! i like yapping and all and all.. INT!!
 
-  ☆ I can be really "DRY, Because I'm either Offtab or busy.
+  ☆ I am mostly offtab or just yapping to my friends.
 
   ☆ I am awkward to talk to!! sometime i can be mean too! and if i'm mean, I don't mean any of those mean words!!
 
   ☆ I do spell allot wrong and i don't care because i just type too fast, ok
 
   ☆ If I unfriend you outta nowhere, prob because we don't talk or i'm just not comftable being around you. (reasonable) "
-
-  ☆ RP users, DNI. I will not be Role-Playing, And I won't at all.
 
   ☆ mmmhmmmm, yes you caught me. i do have speech impediment. **has nothing to do with the typing** also have ~~AuDHD~~/ADHD..
   
@@ -46,11 +44,11 @@ $\color{Gray}{\textbf{please judelow! i need this! i'm kidna homeless....}}$
   <details>
   <summary>$${\color{#4c8dc7} extra \space }$$</summary>
 
-  ☆ Hey soo before you interact with me, there's a few things you should may know!
+  ☆ Hey soo before you interact with me, there's a few things you should may know! *down here!! ^_^
   
   ☆ I am perfectly comfortable with my own ponys (I'm not comfortable if your with a pony that with a fandom that I hate/don't like - DNI - Dandy's world, Hazbin hotel/Others from vizipop, Forsaken, crk,  Solarballs/contryhuman, Jujutsu kaisen (mild-y) TADC, Arcane (mild-y) << DSMP (mild-y) BLUE LOCK (DNI, DNI). just DNI please. others. | off-fandom-related " AGE PLAYERS/REGRESSERS, Toxic/n yaoi/yuri lovers... yuri and yaoi, i don't care, just leave me alone and don't talk about it in front of me. i don't have to explain. Sensitive people.. i really don't wanna trigger anything and i really son't want any trouble, Pro/Dark shippers... Skin Copiers. dni. 
   
-  ☆ I TAKE SKINS!! I LOVE YOU, I WOULD LOVE THE OFFERS!! 
+  ☆ I TAKE SKINS!! I WILL ALWAYS TAKE THEM!! PLSPLSPLSPLSPLSPLS
   
   </details>
 
