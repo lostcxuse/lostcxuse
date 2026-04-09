@@ -87,7 +87,7 @@ $\color{Gray}{\textbf{what if i tell you.. i don't support sharplow but i do at 
   <b> LINKS!! </b><br>
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
-  <a href="https://https://yourlossx.straw.page/">ᴇ-ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
+  <a href="https://yourlossx.straw.page/">ᴇ-ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://www.youtube.com/@lostcxuse">ʏᴏuᴛuʙᴇ</a> -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> 
 
