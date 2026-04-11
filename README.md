@@ -4,4 +4,7 @@
 
 $\color{#9e7247}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info!}}$
 
+$\color{#9e7247}{\textbf{go to my links to get infos too!}}$
+
 $\color{#9e7247}{\textbf{m/w @mikaphinz}}$
+
