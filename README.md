@@ -8,4 +8,6 @@ $\color{#9e7247}{\textbf{go to my links to get infos too!}}$
 
 $\color{#9e7247}{\textbf{m/w @mikaphinz}}$
 
-![36263de0792a50167c5f333b0fea9e5d](https://cdn.pfps.gg/banners/5161-catra.png)
+<img width="912" height="423" alt="Screen Shot 2026-04-14 at 5 01 22 PM" src="https://github.com/user-attachments/assets/60183869-bdac-4d1b-b86d-1dc8060e6d06" />
+
+$\color{#9e7247}{\textbf{catra!!!}}$
