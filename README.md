@@ -11,3 +11,5 @@ $\color{#9e7247}{\textbf{m/w @mikaphinz}}$
 <img width="912" height="423" alt="Screen Shot 2026-04-14 at 5 01 22 PM" src="https://github.com/user-attachments/assets/60183869-bdac-4d1b-b86d-1dc8060e6d06" />
 
 $\color{#a45564}{\textbf{catra!!!}}$
+
+![](https://komarev.com/ghpvc/?username=lostcxuse&color=a45564&style=plastic&label=souls)
