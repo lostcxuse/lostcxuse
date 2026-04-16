@@ -15,7 +15,7 @@ $\color{#a45564}{\textbf{catra!!!/ all seasons.}}$
 
 <img width="1080" height="266" alt="download" src="https://github.com/user-attachments/assets/51f9b9ca-3f7b-4aa7-941b-8950e5c3983f" />
 
-<b> LINKS!! </b><br>
+$\color{#a45564}{\textbf{links!!}}$ -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://yourlossx.straw.page/">ᴇ-ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
