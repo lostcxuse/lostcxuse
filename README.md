@@ -9,7 +9,7 @@ $\color{#9e7247}{\textbf{go to my links to get infos too!}}$
 $\color{#9e7247}{\textbf{m/w @mikaphinz}}$
 
 
-<img width="1080" height="423" alt="1" src="https://github.com/user-attachments/assets/4f352352-f435-45c8-9475-7d961726c524" />
+<img width="1080" height="323" alt="1" src="https://github.com/user-attachments/assets/4f352352-f435-45c8-9475-7d961726c524" />
 
 $\color{#a45564}{\textbf{catra!!!/ all seasons.}}$
 
