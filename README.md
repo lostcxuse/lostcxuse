@@ -1,7 +1,7 @@
 <div align="center">
-
-<img width="1080" height="360" alt="download (1)" src="https://github.com/user-attachments/assets/b74b5578-5498-42b6-aaa4-5d9a9315cb2f" />
  
+<img width="776" height="436" alt="Screen Shot 2026-04-17 at 11 56 57 PM" src="https://github.com/user-attachments/assets/c603ff82-8631-4532-a957-f8976b72e5b3" />
+
 $\color{#9e7247}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info!}}$
 
 $\color{#9e7247}{\textbf{go to my links to get infos too!}}$
