@@ -15,4 +15,4 @@ $\color{gray}{\textbf{links!!}}$ -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> -
   <a href="https://x.com/lostcxuse_/">ᴛᴡıᴛᴛᴇʀ</a>
 
-![](https://komarev.com/ghpvc/?username=lostcxuse&color=a45564&style=plastic&label=souls)
+![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
