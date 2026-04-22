@@ -2,11 +2,11 @@
  
 <img width="997" height="617" alt="Screen Shot 2026-04-17 at 11 58 23 PM" src="https://github.com/user-attachments/assets/0d803c68-8e31-42c8-82ec-ad509a0690dd" />
 
- ![Typing SVG](https://readme-typing-svg.demolab.com?font=Mynerve&size=22&duration=2090&pause=2100&color=c9d1d5&center=true&vCenter=true&width=435&lines=Wifies?..+Why?)
- 
+ ![Typing SVG](https://readme-typing-svg.demolab.com?font=Mynerve&size=18&duration=2090&pause=2100&color=c9d1d5&center=true&vCenter=true&width=435&lines="Parrot,+Please,+give+it+to+me.+Before+you+hurt+yourself...")
+  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Mynerve&size=16&duration=2090&pause=2100&color=c9d1d5&center=true&vCenter=true&width=435&lines="It's+all+yours.")
 $\color{gray}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info! /links too.}}$
 
-$\color{gray}{\textbf{happy 100 followers, tysm!! ily guys, you guys are awesome!}}$
+$\color{gray}{\textbf{INT!!! CxH eng}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
