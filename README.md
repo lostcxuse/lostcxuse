@@ -27,6 +27,8 @@ $\color{gray}{\textbf{links!!}}$ -
 
 if your one of those people who just says "ash's girlfriend" your not real. you guys pmo so much that i put you guys on my dni list. i dont get why your guys cant respect both equaly.
 
+people who complains about minecraft youtuber upload schedules.
+
 Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users - more.
 
 weirdos dni and over sensvitve people. i'll make a lot of jokes that may not be funny and if your over sensvitve person that over reacts, dni please.
