@@ -18,3 +18,15 @@ $\color{gray}{\textbf{links!!}}$ -
   <a href="https://x.com/lostcxuse_/">ᴛᴡıᴛᴛᴇʀ</a>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
+
+  </details>
+
+   <details>
+
+<summary>$${\color{#c9d1d5} important-dni-list. }$$</summary>
+
+if your one of those people who just says "ash's girlfriend" your not real. you guys pmo so much that i put you guys on my dni list. i dont get why your guys cant respect both equaly.
+
+Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users - more.
+
+weirdos dni and over sensvitve people. i'll make a lot of jokes that may not be funny and if your over sensvitve person that over reacts, dni please.
