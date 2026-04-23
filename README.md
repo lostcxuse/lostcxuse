@@ -10,7 +10,7 @@ $\color{gray}{\textbf{INT!!! CxH pls!!}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
-$\color{gray}{\textbf{guys, am i colourblind or not.??????}}$
+just for you guys to fucking know, i'm getting blocked by you guys just because of chats, NO i'm not doxxing anyone. NO i'm not being rude to anyone unless im fed up. YES i am fucking getting along with my friends. DON'T even FUCKING take anything serious from my chat. You guys are taking this way to seriously and i don't get why? i know im joking about werid/crazy/legal stuff or smt, i'm just getting along with my friends. FRIENDS, i don't brings these topics up.
 
 $\color{gray}{\textbf{links!!}}$ -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
