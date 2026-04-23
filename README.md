@@ -10,6 +10,8 @@ $\color{gray}{\textbf{INT!!! CxH pls!!}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
+$\color{gray}{\textbf{guys, am i colourblind or not.??????}}$
+
 $\color{gray}{\textbf{links!!}}$ -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
