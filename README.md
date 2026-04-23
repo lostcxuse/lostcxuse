@@ -10,8 +10,6 @@ $\color{gray}{\textbf{INT!!! CxH pls!!}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
-just for you guys to fucking know, i'm getting blocked by you guys just because of chats, NO i'm not doxxing anyone. NO i'm not being rude to anyone unless im fed up. YES i am fucking getting along with my friends. DON'T even FUCKING take anything serious from my chat. You guys are taking this way to seriously and i don't get why? i know im joking about werid/crazy/legal/some shitty stuff, i'm just getting along with my friends. FRIENDS, i don't brings these topics up. YES i had to swear in this message because you guys make me irritated and much and i don't fucking know why. NO, i'm not used to getting blocked, i only blocked 2 people and then never blocked again unless you guys take everythign so seriously. i'm startign to hate pony town because of this.
-
 $\color{gray}{\textbf{links!!}}$ -
   <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxusex.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
@@ -25,7 +23,9 @@ $\color{gray}{\textbf{links!!}}$ -
 
    <details>
 
-<summary>$${\color{#c9d1d5} important-dni-list. }$$</summary>
+<summary>$${\color{#c9d1d5} important/dni-list. }$$</summary>
+
+just for you guys to fucking know, i'm getting blocked by you guys just because of chats, NO i'm not doxxing anyone. NO i'm not being rude to anyone unless im fed up. YES i am fucking getting along with my friends. DON'T even FUCKING take anything serious from my chat. You guys are taking this way to seriously and i don't get why? i know im joking about werid/crazy/legal/some shitty stuff, i'm just getting along with my friends. FRIENDS, i don't brings these topics up. YES i had to swear in this message because you guys make me irritated and much and i don't fucking know why. NO, i'm not used to getting blocked, i only blocked 2 people and then never blocked again unless you guys take everythign so seriously. i'm startign to hate pony town because of this. YES i know how the people is like in pony town but i don't give a shit. i do care about you guys very much but this? no thanks.
 
 if your one of those people who just says "ash's girlfriend" your not real. you guys pmo so much that i put you guys on my dni list. i dont get why your guys cant respect both equaly.
 
