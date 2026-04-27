@@ -6,7 +6,7 @@
 
 $\color{gray}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info! /links too.}}$
 
-$\color{gray}{\textbf{INT!!! CxH pls!!}}$
+$\color{gray}{\textbf{i really like class of 09'}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
