@@ -18,4 +18,4 @@ $\color{gray}{\textbf{links!!}}$ -
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
-i guess bro.. follow @loonaclows .. #promo
+i guess bro.. follow <a href="https://github.com/loonaclows">@loonaclows </a> .. #promo
