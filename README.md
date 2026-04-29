@@ -17,3 +17,5 @@ $\color{gray}{\textbf{links!!}}$ -
   <a href="https://x.com/lostcxuse_/">ᴛᴡıᴛᴛᴇʀ</a>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
+
+i guess bro.. follow @loonaclows .. #promo
