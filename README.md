@@ -1,8 +1,8 @@
 <div align="center">
 
  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Mynerve&size=16&duration=2090&pause=2100&color=c9d1d5&center=true&vCenter=true&width=435&lines="It's+all+yours.")
- 
-<img width="997" height="617" alt="Screen Shot 2026-04-17 at 11 58 23 PM" src="https://github.com/user-attachments/assets/0d803c68-8e31-42c8-82ec-ad509a0690dd" />
+
+<img width="2440" height="1373" alt="IMG_0074" src="https://github.com/user-attachments/assets/61e34059-c91d-4438-8cb2-d2726e316ca3" />
 
 $\color{gray}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info! /links too.}}$
 
