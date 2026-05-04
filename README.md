@@ -10,7 +10,6 @@ $\color{gray}{\textbf{i really like class of 09'}}$
 $\color{gray}{\textbf{m/w @mikafies}}$
 
 $\color{gray}{\textbf{links!!}}$ -
-  <a href="https://en.pronouns.page/@lostcxuse">ᴘʀoɴouꜱ.ᴘɢ </a> -
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> -
   <a href="https://x.com/lostcxuse_/">ᴛᴡıᴛᴛᴇʀ</a>
