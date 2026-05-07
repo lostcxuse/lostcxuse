@@ -16,4 +16,10 @@ $\color{gray}{\textbf{links!!}}$ -
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
-i mostly sit but if i lie down, it means im gulity or sorry.
+<div align="left">
+
+<img width="321" alt="21209e8e78da8f64493d83150ce7adf6-removebg-preview" src="https://github.com/user-attachments/assets/de8364f3-16e0-4c67-94aa-4c83af91d097" style="background-color: transparent !important" />
+
+<div align="right">
+
+$\color{gray}{\textbf{nicole' emily}}$
