@@ -6,11 +6,20 @@
  
 <div align="left">
 
-$\color{gray}{\textbf{class of 09'}}$
+$\color{gray}{\textbf{class of 09'}}$ 
+<div align="left">
+ 
+$\color{blue}{\textbf{'do you know what 'ex-bodybuilder fat' is?'}}$
+<div align="right">
+ 
+$\color{pink}{\textbf{'yeah, i kinda know what that looks like.'}}$ 
+ <div align="left">
+  
+$\color{blue}{\textbf{'well, he's an obese monster. I was just curious if anyone else knew that bodybuilder phrase... he's not that'}}$
 
 <div align="center">
  
-$\color{gray}{\textbf{hihi!! welcome to my github! you can go to my old repository in the list for info! /links too.}}$
+$\color{gray}{\textbf{hihi!! welcome to my github! i change my readme alot so... no judging or scolding ok?}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
