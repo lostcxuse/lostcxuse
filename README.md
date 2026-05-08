@@ -19,7 +19,7 @@ $\color{blue}{\textbf{'well, he's an obese monster. I was just curious if anyone
 
 <div align="center">
  
-$\color{gray}{\textbf{hihi!! welcome to my github! i change my readme alot so... no judging or scolding ok?}}$
+$\color{gray}{\textbf{hihi!! welcome to my github! i change my readme alot so... no judging or scolding ok? / DO not LOOK at my contributions bro}}$
 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
