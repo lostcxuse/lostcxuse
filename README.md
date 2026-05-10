@@ -1,3 +1,4 @@
+
 <div align="center">
  
  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Mynerve&size=16&duration=2090&pause=2100&color=c9d1d5&repeat=false&center=true&vCenter=true&width=435&lines="It's+all+yours.")
@@ -31,3 +32,5 @@ $\color{gray}{\textbf{links!!}}$ -
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
+curved line that really fucking bothers me ^_^
+<img width="624" height="209" alt="Screen Shot 2026-05-10 at 1 08 57 AM" src="https://github.com/user-attachments/assets/0d8dd9ef-db5a-497e-a586-de4e07d0b1e2" />
