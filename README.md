@@ -26,7 +26,8 @@ $\color{gray}{\textbf{m/w @mikafies}}$
 $\color{gray}{\textbf{links!!}}$ -
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> -
-  <a href="https://x.com/lostcxuse_/">ᴛᴡıᴛᴛᴇʀ</a>
+  <a href="https://x.com/lostcxuse_/">ᴛwıᴛᴛᴇʀ</a> -
+  <a href="https://rentry.co/lostcxuse">ʀᴇnᴛʀy</a> / a failed one
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
