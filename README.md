@@ -35,3 +35,4 @@ $\color{gray}{\textbf{links!!}}$ -
 
 curved line that really fucking bothers me ^_^
 <img width="624" height="209" alt="Screen Shot 2026-05-10 at 1 08 57 AM" src="https://github.com/user-attachments/assets/0d8dd9ef-db5a-497e-a586-de4e07d0b1e2" />
+TRUST i do NOT know any of these people /jk
