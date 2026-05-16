@@ -9,9 +9,7 @@ $\color{gray}{\textbf{K-ON!}}$
 <div align="left">
 
 <div align="center">
-
-$\color{gray}{\textbf{looks best on pc/computer}}$
-
+ 
 $\color{gray}{\textbf{m/w @mikafies}}$
 
 $\color{gray}{\textbf{links!!}}$ -
