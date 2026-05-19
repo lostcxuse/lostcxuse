@@ -6,6 +6,8 @@
 
 $\color{gray}{\textbf{K-ON!}}$ 
 
+$\color{gray}{\textbf{i'm really sorry but please don't talk about me to anyone else or intro me to someone.}}$ 
+
 <div align="center">
  
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=members+of+K-On!)
