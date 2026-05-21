@@ -22,9 +22,9 @@ $\color{gray}{\textbf{!!}}$ -
   <a href="https://github.com/SHXTGVN">phil</a> -
   <a href="https://github.com/xathetic">xav</a> -
   <a href="https://github.com/spinneybitz">nettle</a> -
-  <a href="https://github.com/loonaclows">leo</a> - me -
+  <a href="https://github.com/loonaclows">leo</a> - $\color{gray}{\textbf{me}}$ -
   <a href="https://github.com/mikafies">mika</a> -
   <a href="https://github.com/sugilites">winnie</a> -
-  <a >confetti</a> -
+  <a >$\color{gray}{\textbf{confetti}}$</a> -
   <a href="https://github.com/PrideduoISpeak">kas</a> -
   <a href="https://github.com/ThePirateK1ng">jaden</a>
