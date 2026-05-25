@@ -9,17 +9,4 @@ $\color{darkred}{\textbf{i'm really sorry but please don't talk about me to anyo
 
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
-
-<img width="1209" height="379" alt="image" src="https://github.com/user-attachments/assets/51aff664-e29c-4a27-9c72-646af09d5b43" />
-
-$\color{gray}{\textbf{!!}}$ -
-  <a href="https://github.com/SHXTGVN">phil</a> -
-  <a href="https://github.com/xathetic">xav</a> -
-  <a href="https://github.com/spinneybitz">nettle</a> -
-  <a href="https://github.com/looonacs">leo</a> - $\color{darkred}{\textbf{me}}$ -
-  <a href="https://github.com/mikafies">mika</a> -
-  <a href="https://github.com/sugilites">winnie</a> -
-  <a >$\color{darkred}{\textbf{confetti}}$</a> -
-  <a href="https://github.com/PrideduoISpeak">kas</a> -
-  <a href="https://github.com/ThePirateK1ng">jaden</a>
+![](https://komarev.com/ghpvc/?username=lostcxuse&color=red&style=plastic&label=souls)
