@@ -11,4 +11,4 @@ $\color{gray}{\textbf{i'm really sorry but please don't talk about me to anyone 
  
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=red&style=plastic&label=souls)
 
-$\color{gray}{\textbf{is red orange or is orange red.}}$ 
+$\color{gray}{\textbf{is}}$ $\color{red}{\textbf{red}}$ $\color{orange}{\textbf{orange}}$ $\color{gray}{\textbf{or is}}$ $\color{orange}{\textbf{orange}}$ $\color{red}{\textbf{red.}}$
