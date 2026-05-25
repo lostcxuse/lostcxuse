@@ -10,3 +10,5 @@ $\color{darkred}{\textbf{i'm really sorry but please don't talk about me to anyo
 <div align="center">
  
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=red&style=plastic&label=souls)
+
+is red orange or is orange red.
