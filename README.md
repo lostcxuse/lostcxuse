@@ -10,5 +10,3 @@ $\color{gray}{\textbf{i'm really sorry but please don't talk about me to anyone 
 <div align="center">
  
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=red&style=plastic&label=souls)
-
-$\color{gray}{\textbf{is}}$ $\color{red}{\textbf{red}}$ $\color{orange}{\textbf{orange}}$ $\color{gray}{\textbf{or is}}$ $\color{orange}{\textbf{orange}}$ $\color{red}{\textbf{red.}}$
