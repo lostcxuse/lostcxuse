@@ -1,7 +1,7 @@
 
 <div align="center">
-
- <img width="887" alt="Screen_Shot_2026-05-07_at_1 19 39_AM-removebg-preview" src="https://i.pinimg.com/1200x/ba/4b/ab/ba4bab85068b51a449e88be8eee094b8.jpg" style="background-color: transparent !important"/>
+ 
+<img width="2400" alt="IMG_0280" src="https://github.com/user-attachments/assets/e6564a86-9858-4558-98da-ac1520ad66d5" style="background-color: transparent !important"/>
  
 <div align="center">
 
