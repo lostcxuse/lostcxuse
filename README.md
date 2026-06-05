@@ -10,3 +10,5 @@ $\color{#767d5b}{\textbf{i'm really sorry but please don't talk about me to anyo
 <div align="center">
  
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=green&style=plastic&label=souls)
+
+$\color{#767d5b}{\textbf{my username (lostcxuse) is}}$ $\color{green}{\textbf{NOT}}$ $\color{#767d5b}{\textbf{based on wemmbu.}}$
