@@ -5,7 +5,7 @@
  
 <div align="center">
 
-$\color{#767d5b}{\textbf{i'm really sorry but please don't talk about me to anyone else or intro me to someone. / ,e like beers}}$ 
+$\color{#767d5b}{\textbf{i'm really sorry but please don't talk about me to anyone else or intro me to someone. / me like beers}}$ 
 
 <div align="center">
  
