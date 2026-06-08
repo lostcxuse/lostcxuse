@@ -17,4 +17,4 @@ $\color{gray}{\textbf{links!!}}$ -
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> -
   <a href="https://x.com/lostcxuse_/">ᴛwıᴛᴛᴇʀ</a> -
-  <a href="https://rentry.co/lostcxuse">ʀᴇnᴛʀy</a> / a failed one
+  <a href="https://rentry.co/lostcxuse">ʀᴇnᴛʀy</a>
