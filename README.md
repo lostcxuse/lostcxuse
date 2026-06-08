@@ -13,7 +13,7 @@ $\color{#767d5b}{\textbf{i'm really sorry but please don't talk about me to anyo
 
 $\color{#767d5b}{\textbf{my username (lostcxuse) is}}$ $\color{green}{\textbf{NOT}}$ $\color{#767d5b}{\textbf{based on wemmbu.}}$
 
-$\color{gray}{\textbf{links!!}}$ -
+$\color{#767d5b}{\textbf{links!!}}$ -
   <a href="https://lostcxuse.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> -
   <a href="https://lostcxuse.atabook.org/">ᴀᴛᴀ</a> -
   <a href="https://x.com/lostcxuse_/">ᴛwıᴛᴛᴇʀ</a> -
