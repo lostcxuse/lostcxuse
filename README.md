@@ -17,5 +17,5 @@ $\color{#767d5b}{\textbf{links!!}}$ -
   <a href="https://x.com/lostcxuse_/">ᴛwıᴛᴛᴇʀ</a> -
   <a href="https://rentry.co/lostcxuse">ʀᴇnᴛʀy</a> -
   <a href="https://pronouns.cc/@lostcxuse">ᴘʀns.cc</a> -
-  <a href="https://rentry.co/geminitayyy">ʀᴇnᴛʀy-2</a> 
-  <a href="https://rentry.co/geminitayyy">aᴛabook</a> 
+  <a href="https://rentry.co/geminitayyy">ʀᴇnᴛʀy-2</a> -
+  <a href="https://lost.atabook.org">aᴛabook</a> 
