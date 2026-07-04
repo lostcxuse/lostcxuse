@@ -2,7 +2,7 @@ i feel like a dead animal that just never been cared and been forgotten.
 
 i don't want to lose you.
 
-i'm losing my creativity, motivation, and i'm suddenly the one that is losing my talent i only have.
+i'm losing my creativity, motivation, and suddenly i'm the one that is losing my talent i only have.
 
 locked for now. thanks.
 
