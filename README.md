@@ -1,8 +1,6 @@
 i feel like a dead animal that just never been cared and been forgotten.
 
-i don't want to lose you.
-
-i'm losing my creativity, motivation, and suddenly i'm the one that is losing my talent i only have.
+i don't want to lose you, anything, i don't want to lose anyone.
 
 locked for now. thanks.
 
