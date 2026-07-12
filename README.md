@@ -1,6 +1,8 @@
 <div align="center">
  
-<img width="600" alt="IMG_0280" src="https://files.catbox.moe/zj3rv1.gif" style="background-color: transparent !important"/>
+<img src="https://files.catbox.moe/zj3rv1.gif" />
+
+THIS STUPID GOF WONT FUCKING WORK, FUCK YOU GIF
 
  thanks <a href="https://github.com/silly-dotcom">kaiser</a> for the custom weezer pic and <a href="https://github.com/sillysnapper">bat</a> for matching too
 
