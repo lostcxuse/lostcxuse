@@ -2,7 +2,7 @@
  
 <img src="https://files.catbox.moe/z31y81.png" />
 
-$${\color{#808395} kylo \color{#616C8E} or\color{#385376} kyomoto-or\color{#132D4D}nicknames }$$
+$${\color{#808395} kylo\color{#616C8E} or\color{#385376}kyomoto-or-nicknames}$$
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=blue&style=plastic&label=souls)
 
