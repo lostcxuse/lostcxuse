@@ -8,4 +8,4 @@ $\color{Gray}{\textbf{crd to the (@kapser-kevs) creator who made the 2swag fanar
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
-###### [atabook](https://lost.atabook.org/)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [prns,cx](https://pronouns.cc/@lostcxuse/) ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [cardd](https://lostcxuse.carrd.co) 
+###### [atabook](https://lost.atabook.org/)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [prns,cx](https://pronouns.cc/@lostcxuse/) ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [cardd](https://lostcxuse.carrd.co)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [straw](https://lostnow.straw.page)
