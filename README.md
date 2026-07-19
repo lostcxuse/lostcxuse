@@ -1,4 +1,4 @@
-$\color{Gray}{\textbf{crd to the (@kapserkevs) creator who made the 2swag fanart. i'll make this better later.}}$
+$\color{Gray}{\textbf{crd to the (@kapser-kevs) creator who made the 2swag fanart. i'll make this better later.}}$
 
 <div align="center">
  
