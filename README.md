@@ -1,3 +1,7 @@
+$\color{Gray}{\textbf{if the photo glitch, that not me doing that. blame that on github.*}}$
+
+$\color{Gray}{\textbf{graphic/photo edit made by me, crd to the creator who made catra art.}}$
+
 <div align="center">
  
 <img src="https://files.catbox.moe/z31y81.png" />
