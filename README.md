@@ -1,6 +1,4 @@
-$\color{Gray}{\textbf{if the photo glitch, that not me doing that. blame that on github.* i'll also make this better later.}}$
-
-$\color{Gray}{\textbf{graphic/photo edit made by me, crd to the creator who made the 2swag fanart.}}$
+$\color{Gray}{\textbf{graphic/photo edit made by me, crd to the creator who made the 2swag fanart. i'll make this better later.}}$
 
 <div align="center">
  
