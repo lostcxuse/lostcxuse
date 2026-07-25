@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://www.tumblr.com/kasper-kevs">art-cred</a>
+<a href="https://x.com/artofkace/status/1116484365989699584/photo/1">art-cred</a>
  
 <img width="640" src="https://files.catbox.moe/9r1pzs.png" />
 
