@@ -6,4 +6,4 @@
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
-###### [atabook](https://lost.atabook.org/)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [prns,cx](https://pronouns.cc/@lostcxuse/) ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [cardd](https://lostcxuse.carrd.co)   ‎  ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎   ‎‎‎ [straw](https://lostnow.straw.page)
+##### ‎‎ ‎ ‎[prns,cx](https://pronouns.cc/@lostcxuse) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#789098},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://lost.atabook.org/) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [straw](https://lostnow.straw.page) ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ${\color{#436185},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [cardd](https://lostcxuse.carrd.co)
