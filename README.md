@@ -1,6 +1,6 @@
 <div align="center">
-
-${\color{#789098}there is only 5 minute left⸝ quick… please.}$
+ 
+$\color{#789098}{\textsf{there is only 5 minute left⸝ quick… please.}}$
 
 <a href="https://x.com/artofkace/status/1116484365989699584/photo/1">art-cred</a>
  
