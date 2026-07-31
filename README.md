@@ -1,5 +1,7 @@
 <div align="center">
 
+there is only 5 minute left, quick… please.
+
 <a href="https://x.com/artofkace/status/1116484365989699584/photo/1">art-cred</a>
  
 <img width="640" src="https://files.catbox.moe/9r1pzs.png" />
