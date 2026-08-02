@@ -10,4 +10,4 @@
 
 <p align=center>‎ <a href="https://github.com/fans-town">fans-town’s</a> ${\textsf{\color{#607F93}nezoshoki!}}$
  
-##### ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [prns,cx](https://pronouns.cc/@lostcxuse) ‎‎‎‎‎ ‎ ${\color{#789098},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://lost.atabook.org/) ‎‎  ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [straw](https://lostnow.straw.page) ‎‎ ‎‎‎ ‎ ${\color{#436185},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [cardd](https://lostcxuse.carrd.co) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rid,lol](https://rid.lol/@nezoshoki) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rentry](https://rentry.co/nezoshxki)
+##### ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [prns,cx](https://pronouns.cc/@lostcxuse) ‎‎‎‎‎ ‎ ${\color{#789098},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://lost.atabook.org/) ‎‎  ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [cardd](https://lostcxuse.carrd.co) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rid,lol](https://rid.lol/@nezoshoki) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rentry](https://rentry.co/nezoshxki)
