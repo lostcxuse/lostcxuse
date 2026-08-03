@@ -8,8 +8,10 @@
 
 <img width="240" src="https://files.catbox.moe/28yuu5.png" />
 
-<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$
+ <p style="text-align: center;"><details>
+ <summary> $\color{#262e3b}\textsf{click this to see titles... idk}$</summary>
 
-i’m not greedy ok?…
+<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$
+</details></p>
  
 ##### ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [prns,cx](https://pronouns.cc/@lostcxuse) ‎‎‎‎‎ ‎ ${\color{#789098},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://lost.atabook.org/) ‎‎  ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [cardd](https://lostcxuse.carrd.co) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rid,lol](https://rid.lol/@nezoshoki) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rentry](https://rentry.co/nezoshxki)
