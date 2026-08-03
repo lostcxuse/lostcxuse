@@ -9,7 +9,7 @@
 <img width="240" src="https://files.catbox.moe/28yuu5.png" />
 
  <p style="text-align: center;"><details>
- <summary> $\color{#262e3b}\textsf{click this to see titles... idk}$</summary>
+ <summary> $\color{#687ea3}\textsf{click this to see titles... idk}$</summary>
 
 <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$
 </details></p>
