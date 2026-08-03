@@ -11,7 +11,7 @@
  <p style="text-align: center;"><details>
  <summary> $\color{#687ea3}\textsf{click this to see titles... idk}$</summary>
 
-<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$ <a href="https://github.com/bigmanschlatt"> oomf pony thingy, </a> 
+<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$ <a href="https://github.com/bigmanschlatt"> oomf enthusiast pony thingy, </a> 
 </details></p>
  
 ##### ‎‎ ‎ ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ [prns,cx](https://pronouns.cc/@lostcxuse) ‎‎‎‎‎ ‎ ${\color{#789098},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [atabook](https://lost.atabook.org/) ‎‎  ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ [cardd](https://lostcxuse.carrd.co) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rid,lol](https://rid.lol/@nezoshoki) ‎‎ ‎‎‎‎‎‎ ‎ ${\color{#607F93},⸝⸝}$‎‎‎‎‎‎‎ [rentry](https://rentry.co/nezoshxki)
