@@ -1,3 +1,5 @@
+to all who uses rentry https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share
+
 <div align="center">
 
 <a href="https://x.com/artofkace/status/1116484365989699584/photo/1">art-cred</a>
