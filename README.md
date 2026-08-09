@@ -1,4 +1,4 @@
-to all who uses rentry https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share
+STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to all who uses rentry, PLEASE read. https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share
 
 <div align="center">
 
