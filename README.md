@@ -2,9 +2,7 @@ STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to al
 
 <div align="center">
 
-<a href="https://x.com/artofkace/status/1116484365989699584/photo/1">art-cred</a>
- 
-<img width="640" src="https://files.catbox.moe/9r1pzs.png" />
+<img width="640" src="https://media1.tenor.com/m/9AGCqVr_LWoAAAAC/bliss-bliss-smp.gif" />
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
