@@ -2,7 +2,9 @@ STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to al
 
 <div align="center">
 
-<img width="640" src="https://media1.tenor.com/m/9AGCqVr_LWoAAAAC/bliss-bliss-smp.gif" />
+i'll slime all of you guys out hahahhahha!! 
+
+<img width="640" src="https://media1.tenor.com/m/0EU3MgiRL4sAAAAd/nezoshoki-nezo.gif" />
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
