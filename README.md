@@ -1,4 +1,4 @@
-STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to all who uses rentry, PLEASE read. SPREAD this around please! https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share - fluffle is also included of being one.
+STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to all who uses rentry, PLEASE read. SPREAD this around please! <a href="https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share"> click this to see the tumblr post </a> - fluffle is also included of being one.
 
 <div align="center">
 
