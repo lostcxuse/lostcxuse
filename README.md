@@ -11,7 +11,7 @@ i'll slime all of you guys out hahahhahha!!
  <p style="text-align: center;"><details>
  <summary> $\color{white}\textsf{click this to see titles... idk}$</summary>
 
-<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> ${\textsf{\color{#607F93}’s nezoshoki!}}$ <a href="https://github.com/oppieenthusiast"> oomf enthusiast pony thingy, </a> 
+<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> ${\textsf{\color{white}’s nezoshoki!}}$ <a href="https://github.com/oppieenthusiast"> oomf enthusiast pony thingy, </a> 
 </details></p>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
