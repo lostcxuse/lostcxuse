@@ -15,3 +15,5 @@ i'll slime all of you guys out hahahhahha!!
 </details></p>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=neon&size=15&duration=1000&pause=200&multiline=true&height=99&color=C4C5D1&center=true&lines=who’s+your+bias?;i’m+your+bias!;who’s+your+bias?;i’m+your+bias!&repeat=1)](https://git.io/typing-svg)
