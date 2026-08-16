@@ -16,4 +16,6 @@ i'll slime all of you guys out hahahhahha!!
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=neon&size=15&duration=1000&pause=200&multiline=true&height=99&color=C4C5D1&center=true&lines=who’s+your+bias?;i’m+your+bias!;who’s+your+bias?;i’m+your+bias!&repeat=1)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=neon&size=15&duration=900&pause=200&multiline=true&height=99&color=C4C5D1&center=true&lines=who’s+your+bias?;i’m+your+bias!;who’s+your+bias?;i’m+your+bias!)](https://git.io/typing-svg)
+
+guys play the song it’s me by illit and the lyric will match with the pace, trust.
