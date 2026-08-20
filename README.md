@@ -1,10 +1,12 @@
-STOP USING RENTRY!! STOP USING THEM!! DON’T SUPPORT THE OWNER OF RENTRY! to all who uses rentry, PLEASE read. SPREAD this around please! <a href="https://www.tumblr.com/vocaloidtransparents/824069364392329216?source=share"> click this to see the tumblr post </a> - fluffle is also included of being one.
-
 <div align="center">
 
 i'll slime all of you guys out hahahhahha!! 
 
 <img width="640" src="https://media1.tenor.com/m/0EU3MgiRL4sAAAAd/nezoshoki-nezo.gif" />
+
+<img src=“https://files.catbox.moe/98r8bb.png” />
+
+where my allegiance duo at. why no image bruh.
 
 <img width="240" src="https://files.catbox.moe/28yuu5.png" />
 
