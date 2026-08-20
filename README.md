@@ -2,7 +2,7 @@
 
 @art crd: @xinnvie on twitter
 
-WHO IS THIS RANDOM PERSON ON MY APPLE BRUH ‘ do we like my gif i made…
+ do we like my gif i made…
 
 <img width="450" src="https://files.catbox.moe/rp6pro.gif" />
 
