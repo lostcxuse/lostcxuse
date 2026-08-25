@@ -1,4 +1,4 @@
-pls read my [cardd](https://www.instagram.com/p/DVmW2Llk9rb/?hl=en&img_index=1)
+pls read my [cardd](https://urbexashton.carrd.co)
 
 <div align="center">
 
