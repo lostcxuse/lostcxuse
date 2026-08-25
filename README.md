@@ -1,3 +1,5 @@
+pls read my [cardd](https://www.instagram.com/p/DVmW2Llk9rb/?hl=en&img_index=1)
+
 <div align="center">
 
 @art crd: @xinnvie on twitter
