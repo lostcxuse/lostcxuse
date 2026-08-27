@@ -12,4 +12,6 @@ pls read my [cardd](https://urbexashton.carrd.co)
 
 thanks for all the titles.
 
+<img width="650" src="https://files.catbox.moe/adrmig.png" /> where is kyomoto
+
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
