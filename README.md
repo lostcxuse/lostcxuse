@@ -2,7 +2,7 @@ pls read my [cardd](https://urbexashton.carrd.co)
 
 <div align="center">
 
-@art crd: @Lanchi0226 on twitter / the colouring on the gif is messed up, i’m not sure why bruh.
+@art crd: @Lanchi0226 on twitter
 
 <img width="650" src="https://files.catbox.moe/nqp7wv.gif" />
 
