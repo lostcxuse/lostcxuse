@@ -1,4 +1,4 @@
-pls read my [cardd](https://urbexashton.carrd.co)
+pls read my [cardd](https://urbexashton.carrd.co) [mewdew and gucci morty](https://www.tiktok.com/@fakemewdew/video/7679481389934202142?is_from_webapp=1&sender_device=pc)
 
 <div align="center">
 
