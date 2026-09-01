@@ -6,7 +6,7 @@ pls read my [cardd](https://urbexashton.carrd.co) [mewdew and gucci morty](https
 
 <img width="650" src="https://files.catbox.moe/nqp7wv.gif" />
 
-<img width="240" src="https://files.catbox.moe/28yuu5.png" />
+<img width="240" src="https://files.catbox.moe/28yuu5.png" /> and boomie.
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 
