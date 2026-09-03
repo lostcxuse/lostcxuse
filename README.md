@@ -1,4 +1,4 @@
-pls read my [cardd](https://urbexashton.carrd.co)
+
 
 <div align="center">
 
