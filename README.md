@@ -1,4 +1,4 @@
-
+hi guys, read cardd and check twitter for mcyt fanart i made
 
 <div align="center">
 
