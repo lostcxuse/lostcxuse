@@ -1,11 +1,9 @@
-hi guys, read cardd and check twitter for mcyt fanart i made
 
 <div align="center">
 
-<img width="650" src="https://files.catbox.moe/jvjt55.jpeg" />
+<img width="800" alt="IMG_0280" src="https://files.catbox.moe/3yllpg.gif" style="background-color: transparent !important"/>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
-
 <details> 
  <summary> ${\textsf{\color{#00777a}oomfs}}$ </summary>
 
