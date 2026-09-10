@@ -1,9 +1,9 @@
 
 <div align="center">
 
-${\textsf{\color{#00777a}The Fast and the Furious: Tokyo Drift}}$
+${\textsf{\color{#00777a}hannahxxxrose! and bacon and kaboodle too i guess…}}$
 
-<img width="800" alt="IMG_0280" src="https://files.catbox.moe/5kl6s2.gif" style="background-color: transparent !important"/>
+<img width="800" alt="IMG_0280" src="https://file.garden/aqMYnO1KYTuDHmzN/ezgif.com-gif-maker%203.gif" style="background-color: transparent !important"/>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 <details> 
