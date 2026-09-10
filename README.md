@@ -1,7 +1,9 @@
 
 <div align="center">
 
-<img width="800" alt="IMG_0280" src="https://files.catbox.moe/3yllpg.gif" style="background-color: transparent !important"/>
+${\textsf{\color{#00777a}Fast and Furious: Tokyo Drift}}$
+
+<img width="800" alt="IMG_0280" src="https://files.catbox.moe/5kl6s2.gif" style="background-color: transparent !important"/>
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&color=gray&style=plastic&label=souls)
 <details> 
