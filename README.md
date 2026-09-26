@@ -24,6 +24,7 @@ ${\textsf{\color{#00777a}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\
 ${\textsf{\color{#00777a}”}}$ [dumb](https://github.com/tuloah)
 ${\textsf{\color{#00777a}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#00777a}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#00777a}”}}$ [kaiser](https://github.com/silly-dotcom) 
 ${\textsf{\color{#00777a}”}}$ [alex](https://github.com/toritilla)
+${\textsf{\color{#00777a}”}}$ [kyle](https://github.com/unpleasant-like)
 ${\textsf{\color{#00777a}”}}$ [alexia](https://github.com/Alexia1shere)
 
 ${\textsf{\color{#00777a}<3}}$ [crane](https://github.com/infinitelygrey)
