@@ -1,15 +1,12 @@
 
 <div align="center">
 
-${\textsf{\color{#CC3C74}hannahxxrose!}}$ ${\textsf{\color{#9B4D49}bacon! and}}$
-${\textsf{\color{#7AB0D7}justkaboodle!}}$
+<img width=“500” src="https://file.garden/aqMYnO1KYTuDHmzN/Untitled65_20260926203209.png"> 
 
-<img width="800" alt="IMG_0280" src="https://file.garden/aqMYnO1KYTuDHmzN/ezgif.com-gif-maker%203.gif" style="background-color: transparent !important"/>
-
-![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=CC3C74)
+![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=78688f)
 
 <details> 
- <summary> ${\textsf{\color{#00777a}oomfs}}$ </summary>
+ <summary> ${\textsf{\color{#78688f}oomfs}}$ </summary>
 
  
 
@@ -18,16 +15,16 @@ ${\textsf{\color{#7AB0D7}justkaboodle!}}$
 <td>
 </p>
 
-${\textsf{\color{#00777a}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\textsf{\color{#00777a}”}}$ [rus](https://github.com/parusite) ${\textsf{\color{#00777a}”}}$ [four](https://github.com/duowithme) 
+${\textsf{\color{#78688f}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\textsf{\color{#78688f}”}}$ [rus](https://github.com/parusite) ${\textsf{\color{#78688f}”}}$ [four](https://github.com/duowithme) 
 
-${\textsf{\color{#00777a}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#00777a}”}}$ [kar](https://github.com/snowbuckett) ${\textsf{\color{#00777a}”}}$ [winnie](https://github.com/sugilites) 
-${\textsf{\color{#00777a}”}}$ [dumb](https://github.com/tuloah)
-${\textsf{\color{#00777a}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#00777a}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#00777a}”}}$ [kaiser](https://github.com/silly-dotcom) 
-${\textsf{\color{#00777a}”}}$ [alex](https://github.com/toritilla)
-${\textsf{\color{#00777a}”}}$ [kyle](https://github.com/unpleasant-like)
-${\textsf{\color{#00777a}”}}$ [alexia](https://github.com/Alexia1shere)
+${\textsf{\color{#78688f}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#78688f}”}}$ [kar](https://github.com/snowbuckett) ${\textsf{\color{#78688f}”}}$ [winnie](https://github.com/sugilites) 
+${\textsf{\color{#78688f}”}}$ [dumb](https://github.com/tuloah)
+${\textsf{\color{#78688f}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#78688f}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#78688f}”}}$ [kaiser](https://github.com/silly-dotcom) 
+${\textsf{\color{#78688f}”}}$ [alex](https://github.com/toritilla)
+${\textsf{\color{#78688f}”}}$ [kyle](https://github.com/unpleasant-like)
+${\textsf{\color{#78688f}”}}$ [alexia](https://github.com/Alexia1shere)
 
-${\textsf{\color{#00777a}<3}}$ [crane](https://github.com/infinitelygrey)
-${\textsf{\color{#00777a}”}}$ [milo](https://github.com/emariyaoi)
+${\textsf{\color{#78688f}<3}}$ [crane](https://github.com/infinitelygrey)
+${\textsf{\color{#78688f}”}}$ [milo](https://github.com/emariyaoi)
 
 hi, i think i’m a therapist. hi come to me.
