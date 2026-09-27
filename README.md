@@ -1,7 +1,7 @@
 
 <div align="center">
 
-<img width=“500” src="https://file.garden/aqMYnO1KYTuDHmzN/Untitled65_20260926203209.png"> 
+<img width=“200” height=“200” src="https://file.garden/aqMYnO1KYTuDHmzN/Untitled65_20260926203209.png"> 
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=78688f)
 
