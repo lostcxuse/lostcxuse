@@ -26,5 +26,3 @@ ${\textsf{\color{#78688f}”}}$ [alexia](https://github.com/Alexia1shere)
 
 ${\textsf{\color{#78688f}<3}}$ [crane](https://github.com/infinitelygrey)
 ${\textsf{\color{#78688f}”}}$ [milo](https://github.com/emariyaoi)
-
-hi, guys, i have the title of being nezoshoki and boomie... i don’t like titles but i’m the grinder.
