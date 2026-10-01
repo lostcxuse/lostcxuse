@@ -3,7 +3,7 @@
 
 <img width=“200” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/Untitled68_20261001172750.png"> 
 
-![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=78688f)
+![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=E24594)
 
 <details> 
  <summary> ${\textsf{\color{#E24594}oomfs}}$ </summary>
