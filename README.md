@@ -24,5 +24,5 @@ ${\textsf{\color{#E24594}”}}$ [alex](https://github.com/toritilla)
 ${\textsf{\color{#E24594}”}}$ [kyle](https://github.com/unpleasant-like)
 ${\textsf{\color{#E24594}”}}$ [alexia](https://github.com/Alexia1shere)
 
-${\textsf{\color{#E24594}<3}$ [crane](https://github.com/infinitelygrey)
+${\textsf{\color{#E24594}<3}}$ [crane](https://github.com/infinitelygrey)
 ${\textsf{\color{#E24594}”}}$ [milo](https://github.com/emariyaoi)
