@@ -31,4 +31,4 @@ ${\textsf{\color{#E24594}”}}$ [dummyinbed](https://github.com/dummyinbed)
 ${\textsf{\color{#E24594}alts “}}$ [ssoshaun](https://github.com/ssoshaun) 
 ${\textsf{\color{#E24594}”}}$ [mewdewtv](https://github.com/mewdewtv)
 ${\textsf{\color{#E24594}”}}$ [boomiemc](https://github.com/boomiemc)
-${\textsf{\color{#E24594}”}}$ [nezoshxki](https://github.com/nezoshxki) ${\textsf{\color{#E24594}<<< boomie+nezo is unused}}$ 
+${\textsf{\color{#E24594}”}}$ [nezoshxki](https://github.com/nezoshxki)
