@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=E24594)
 
 <details> 
- <summary> ${\textsf{\color{#E24594}oomfs}}$ </summary>
+ <summary> ${\textsf{\color{#E24594}oomfs+no order}}$ </summary>
 
  
 
