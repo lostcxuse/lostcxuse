@@ -19,6 +19,7 @@ ${\textsf{\color{#E24594}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\
 
 ${\textsf{\color{#E24594}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#E24594}”}}$ [kar](https://github.com/snowbuckett) ${\textsf{\color{#E24594}”}}$ [winnie](https://github.com/sugilites) 
 ${\textsf{\color{#E24594}”}}$ [dumb](https://github.com/tuloah)
+${\textsf{\color{#E24594}”}}$ [kat](https://github.com/katlective)
 ${\textsf{\color{#E24594}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#E24594}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#E24594}”}}$ [kaiser](https://github.com/silly-dotcom) 
 ${\textsf{\color{#E24594}”}}$ [alex](https://github.com/toritilla)
 ${\textsf{\color{#E24594}”}}$ [kyle](https://github.com/unpleasant-like)
