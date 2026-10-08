@@ -1,6 +1,8 @@
 
 <div align="center">
 
+${\textsf{\color{#C48072}buncha of friends! ( ᴗ͈ˬᴗ͈)ഒ}}$
+
 <img width=“200” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/IMG_1627.jpeg"> 
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=C48072)
