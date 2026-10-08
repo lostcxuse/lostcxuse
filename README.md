@@ -1,12 +1,12 @@
 
 <div align="center">
 
-<img width=“200” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/Untitled68_20261001172750.png"> 
+<img width=“200” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/IMG_1627.jpeg"> 
 
-![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=E24594)
+![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=C48072)
 
 <details> 
- <summary> ${\textsf{\color{#E24594}oomfs+no order}}$ </summary>
+ <summary> ${\textsf{\color{#C48072}oomfs+no order}}$ </summary>
 
  
 
@@ -15,21 +15,21 @@
 <td>
 </p>
 
-${\textsf{\color{#E24594}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\textsf{\color{#E24594}”}}$ [rus](https://github.com/parusite) ${\textsf{\color{#E24594}”}}$ [four](https://github.com/duowithme) 
+${\textsf{\color{#C48072}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\textsf{\color{#C48072}”}}$ [rus](https://github.com/parusite) ${\textsf{\color{#C48072}”}}$ [four](https://github.com/duowithme) 
 
-${\textsf{\color{#E24594}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#E24594}”}}$ [kar](https://github.com/snowbuckett) ${\textsf{\color{#E24594}”}}$ [winnie](https://github.com/sugilites) 
-${\textsf{\color{#E24594}”}}$ [dumb](https://github.com/tuloah)
-${\textsf{\color{#E24594}”}}$ [kat](https://github.com/katlective)
-${\textsf{\color{#E24594}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#E24594}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#E24594}”}}$ [kaiser](https://github.com/silly-dotcom) 
-${\textsf{\color{#E24594}”}}$ [alex](https://github.com/toritilla)
-${\textsf{\color{#E24594}”}}$ [kyle](https://github.com/unpleasant-like)
-${\textsf{\color{#E24594}”}}$ [alexia](https://github.com/Alexia1shere)
+${\textsf{\color{#C48072}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#C48072}”}}$ ${\textsf{\color{#C48072}”}}$ [winnie](https://github.com/sugilites) 
+${\textsf{\color{#C48072}”}}$ [dumb](https://github.com/tuloah)
+${\textsf{\color{#C48072}”}}$ [kat](https://github.com/katlective)
+${\textsf{\color{#C48072}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#C48072}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#C48072}”}}$ [kaiser](https://github.com/silly-dotcom) 
+${\textsf{\color{#C48072}”}}$ [alex](https://github.com/toritilla)
+${\textsf{\color{#C48072}”}}$ [kyle](https://github.com/unpleasant-like)
+${\textsf{\color{#C48072}”}}$ [alexia](https://github.com/Alexia1shere)
 
-${\textsf{\color{#E24594}<3}}$ [crane](https://github.com/infinitelygrey)
-${\textsf{\color{#E24594}”}}$ [milo](https://github.com/emariyaoi)
-${\textsf{\color{#E24594}”}}$ [dummyinbed](https://github.com/dummyinbed)
+${\textsf{\color{#C48072}<3}}$ [crane](https://github.com/infinitelygrey)
+${\textsf{\color{#C48072}”}}$ [milo](https://github.com/emariyaoi)
+${\textsf{\color{#C48072}”}}$ [dummyinbed](https://github.com/dummyinbed)
 
-${\textsf{\color{#E24594}alts “}}$ [ssoshaun](https://github.com/ssoshaun) 
-${\textsf{\color{#E24594}”}}$ [mewdewtv](https://github.com/mewdewtv)
-${\textsf{\color{#E24594}”}}$ [boomiemc](https://github.com/boomiemc)
-${\textsf{\color{#E24594}”}}$ [nezoshxki](https://github.com/nezoshxki)
+${\textsf{\color{#C48072}alts “}}$ [ssoshaun](https://github.com/ssoshaun) 
+${\textsf{\color{#C48072}”}}$ [mewdewtv](https://github.com/mewdewtv)
+${\textsf{\color{#C48072}”}}$ [boomiemc](https://github.com/boomiemc)
+${\textsf{\color{#C48072}”}}$ [nezoshxki](https://github.com/nezoshxki)
