@@ -19,7 +19,8 @@ ${\textsf{\color{#C48072}buncha of friends! ( ᴗ͈ˬᴗ͈)ഒ}}$
 
 ${\textsf{\color{#C48072}<333}}$ [sam](https://github.com/TheHuntersHusband) ${\textsf{\color{#C48072}”}}$ [rus](https://github.com/parusite) ${\textsf{\color{#C48072}”}}$ [four](https://github.com/duowithme) 
 
-${\textsf{\color{#C48072}<33}}$ [mika](https://github.com/hympnosis) ${\textsf{\color{#C48072}”}}$ ${\textsf{\color{#C48072}”}}$ [winnie](https://github.com/sugilites) 
+${\textsf{\color{#C48072}<33}}$ [mika](https://github.com/hympnosis)
+${\textsf{\color{#C48072}”}}$ [winnie](https://github.com/sugilites) 
 ${\textsf{\color{#C48072}”}}$ [dumb](https://github.com/tuloah)
 ${\textsf{\color{#C48072}”}}$ [kat](https://github.com/katlective)
 ${\textsf{\color{#C48072}”}}$ [xav](https://github.com/xathetic) ${\textsf{\color{#C48072}”}}$ [bat](https://github.com/sprinklesex) ${\textsf{\color{#C48072}”}}$ [kaiser](https://github.com/silly-dotcom) 
