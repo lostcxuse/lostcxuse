@@ -29,8 +29,3 @@ ${\textsf{\color{#7300d1}”}}$ [alexia](https://github.com/Alexia1shere)
 ${\textsf{\color{#7300d1}<3}}$ [crane](https://github.com/infinitelygrey)
 ${\textsf{\color{#7300d1}”}}$ [milo](https://github.com/emariyaoi)
 ${\textsf{\color{#7300d1}”}}$ [dummyinbed](https://github.com/dummyinbed)
-
-${\textsf{\color{#7300d1}alts “}}$ [ssoshaun](https://github.com/ssoshaun) 
-${\textsf{\color{#7300d1}”}}$ [mewdewtv](https://github.com/mewdewtv)
-${\textsf{\color{#7300d1}”}}$ [boomiemc](https://github.com/boomiemc)
-${\textsf{\color{#7300d1}”}}$ [nezoshxki](https://github.com/nezoshxki)
