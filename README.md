@@ -7,7 +7,7 @@
 ㅤ ${\textsf{\color{#c9c9c9} they’d be jealous}}$
 
 ㅤ ${\textsf{\color{#c9c9c9} that our love}}$
-ㅤ ${\textsf{\color{#c9c9c9} is deeper than}}$
+ㅤ ${\textsf{\color{#c9c9c9} isdeeper than}}$
 ㅤ ${\textsf{\color{#c9c9c9} edward and}}$
 ㅤ ${\textsf{\color{#c9c9c9} bella’s}}$
 
