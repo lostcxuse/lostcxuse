@@ -1,21 +1,21 @@
 
 <div align="center">
 
-ㅤ ${\textsf{\color{#c9c9c9} then all of your friends}}$
-ㅤ ${\textsf{\color{#c9c9c9} they’d try to kill us}}$
-ㅤ ${\textsf{\color{#c9c9c9} but only because}}$
-ㅤ ${\textsf{\color{#c9c9c9} they’d be jealous}}$
+ㅤ ${\textsf{\color{#7B83F7} ”without}}$
+ㅤ ${\textsf{\color{#7B83F7} you,}}$
+ㅤ ${\textsf{\color{#7B83F7} i’m}}$
+ㅤ ${\textsf{\color{#7B83F7} nothing…}}$
 
-ㅤ ${\textsf{\color{#c9c9c9} that our love}}$
-ㅤ ${\textsf{\color{#c9c9c9} is deeper than}}$
-ㅤ ${\textsf{\color{#c9c9c9} edward and}}$
-ㅤ ${\textsf{\color{#c9c9c9} bella’s}}$
+ㅤ ${\textsf{\color{#7B83F7} you}}$
+ㅤ ${\textsf{\color{#7B83F7} don’t}}$
+ㅤ ${\textsf{\color{#7B83F7} drag}}$
+ㅤ ${\textsf{\color{#7B83F7} me down.}}$
 
-<img width=“500” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/wifiesandparrot"> 
+<img width=“500” height=“300” src="https://file.garden/aqMYnO1KYTuDHmzN/joandrai"> 
 
-ㅤ ${\textsf{\color{#c9c9c9} oh, if i were a zombie}}$
-ㅤ ${\textsf{\color{#c9c9c9} i’d never eat your brain}}$
-ㅤ ${\textsf{\color{#c9c9c9} i’d just want your heart}}$
-ㅤ ${\textsf{\color{#c9c9c9} yeah, i’d just want your heart}}$
+ㅤ ${\textsf{\color{#7B83F7} you}}$
+ㅤ ${\textsf{\color{#7B83F7} make}}$
+ㅤ ${\textsf{\color{#7B83F7} me}}$
+ㅤ ${\textsf{\color{#7B83F7} soar.}}$
 
-![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=c9c9c9)
+![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=7B83F7)
