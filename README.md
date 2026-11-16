@@ -16,6 +16,6 @@
 ㅤ ${\textsf{\color{#7B83F7} you}}$
 ㅤ ${\textsf{\color{#7B83F7} make}}$
 ㅤ ${\textsf{\color{#7B83F7} me}}$
-ㅤ ${\textsf{\color{#7B83F7} soar.}}$
+ㅤ ${\textsf{\color{#7B83F7} soar.”}}$
 
 ![](https://komarev.com/ghpvc/?username=lostcxuse&style=plastic&label=souls&color=7B83F7)
