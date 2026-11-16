@@ -1,8 +1,7 @@
 
 <div align="center">
 
-ㅤ ${\textsf{\color{#7B83F7} ”without}}$
-ㅤ ${\textsf{\color{#7B83F7} you,}}$
+ㅤ ${\textsf{\color{#7B83F7} ”without you}}$
 ㅤ ${\textsf{\color{#7B83F7} i’m}}$
 ㅤ ${\textsf{\color{#7B83F7} nothing…}}$
 
